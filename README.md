@@ -20,7 +20,7 @@
 
 - **Email:** [wachiraamos402@gmail.com](mailto:wachiraamos402@gmail.com)
 - **LinkedIn:** [Amos Wachira](https://www.linkedin.com/in/amos-wachira-27901b244/)
-- **Portfolio:** [Amos Wachira](https://amoswachira.cloud)
+- **Portfolio:** [Amos Wachira](https://amoswachira.me)
 
 ---
 
